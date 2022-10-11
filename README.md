@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @faias22
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+faias22/faias22 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->gfh3yh7u7 yuu66 hyuu
+hrjyyj3j377
+u7ui7y4j 657u 5yhtyuurytt
+gjt
